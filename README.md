@@ -1,4 +1,4 @@
 
 ![](https://i.imgur.com/vN7u2nA.gif)
 
-![](https://i.ibb.co/Jjptqgr1/Ba-l-ks-z20-20250905193457-2.png)
+![](https://cdn.discordapp.com/attachments/1401875848084193360/1414620577498529934/Baslksz20_20250905193457_2.png?ex=68c03b94&is=68beea14&hm=93376f529d86504567e096c52ffe8acb9cb83657322575279eeb135e75857b36&)
